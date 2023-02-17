@@ -1,1 +1,1 @@
-VISIT MY PRIVATE SITE: hhtps://ascompany.uz
+VISIT MY PRIVATE SITE: https://ascompany.uz
